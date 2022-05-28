@@ -1,0 +1,1 @@
+# grup_30_KsendzovVadim
